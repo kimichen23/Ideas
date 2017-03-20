@@ -1,0 +1,2 @@
+# Ideas
+Record of ideas
